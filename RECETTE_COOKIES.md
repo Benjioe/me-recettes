@@ -3,7 +3,7 @@
 - 1 œuf
 - 45 g de sucre
 - 65 g de Cassonade
-- 1 c à s de miel de fleur
+- 1 c à s de miel de sapin
 - 1 pincée de sel
 - 100 g de beurre
 - 225 g de farine
